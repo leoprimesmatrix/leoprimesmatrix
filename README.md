@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @leoprimesmatrix
+- 👀 I’m interested in Programming and making Roblox Games.
+- 🌱 I’m currently learning coding.
+- 📫 How to reach me -- Reach me in Discord: https://discord.com/channels/@me/718605566242455552
